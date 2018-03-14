@@ -6,4 +6,4 @@ After getting out of bed that morning, looking out the window and not noticing a
 I assumed it would be just another day.
 Little did I know that by the time my head hits the pillow that night, myself and the world around me will have changed forever.
 
-P2
+When I walked out the front door I saw a black SUV parked across the street.
